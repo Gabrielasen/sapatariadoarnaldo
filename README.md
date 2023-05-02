@@ -1,2 +1,0 @@
-# sapatariadoarnaldo
-nova-sapataria
